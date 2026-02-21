@@ -1,8 +1,12 @@
 <img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/37704231-20ec-4928-b847-67c4f6831fa0" />
 
 <img width="1048" height="353" alt="image" src="https://github.com/user-attachments/assets/1ecc9eef-4b98-4533-9f21-d164c36f1c8b" />
+<div align="center">
 
+<p class="typing"> </p>
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=22&pause=1000&color=FF0000&width=680&lines=%22%D0%9C%D0%B8%D0%BB%D0%BE%2C+%D0%BD%D0%BE+%D0%BC%D0%BD%D0%B5+%D0%BD%D0%B5+%D0%BD%D1%83%D0%B6%D0%BD%D0%B0+%D1%82%D0%B2%D0%BE%D1%8F+%D0%BF%D0%BE%D0%BC%D0%BE%D1%89%D1%8C%22)](https://git.io/typing-svg)
+</p>
 
 ### 🔺 : **𝐏𝐨𝐧𝐲𝐭𝐨𝐰𝐧 𝐈𝐧𝐟𝐨**
 
