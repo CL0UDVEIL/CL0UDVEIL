@@ -1,4 +1,5 @@
-<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/37704231-20ec-4928-b847-67c4f6831fa0" />
+<img width="1080" height="100" alt="image" src="https://github.com/user-attachments/assets/8434b9fc-d0d3-4337-8f8a-5214360208a1" />
+
 
 <img width="1048" height="353" alt="image" src="https://github.com/user-attachments/assets/1ecc9eef-4b98-4533-9f21-d164c36f1c8b" />
 <div align="center">
@@ -36,7 +37,7 @@ w someone , but i prefer sending a whisper to start a convo.
 
 
 
-<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/486e7b21-fd21-4de0-b209-b5ae99736fc5" />
+<img width="1080" height="100" alt="image" src="https://github.com/user-attachments/assets/a7302f7a-7bbb-4d35-bcb6-91e9541bec79" />
 
 
 
