@@ -6,7 +6,8 @@
 
 <p class="typing"> </p>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=18&pause=1000&color=FF0000&width=750&lines=%22%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B5%2C+%D1%8F+%D1%81%D0%BC%D0%BE%D1%82%D1%80%D0%B5%D0%BB%D0%B0+%D0%BA%D0%B0%D0%BA+%D0%BE%D0%BD%D0%B8+%D1%83%D0%BC%D0%B8%D1%80%D0%B0%D0%BB%D0%B8%22)](https://git.io/typing-svg)
+<p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=14&duration=3000&pause=1000&color=F08080&center=true&vCenter=true&width=435&lines=%D0%B2%D1%8B+%D0%B5%D0%B5+%D1%85%D0%BE%D1%80%D0%BE%D1%88%D0%BE+%D0%B2%D0%BE%D1%81%D0%BF%D0%B8%D1%82%D0%B0%D0%BB%D0%B8" alt="Typing SVG" />
 </p>
 
 ### 🔺 : **𝐏𝐨𝐧𝐲𝐭𝐨𝐰𝐧 𝐈𝐧𝐟𝐨** <img src="https://github.com/user-attachments/assets/0e9d1b6c-b6a3-4b71-a615-d921a6cc3aeb" height="32px" align="center">
