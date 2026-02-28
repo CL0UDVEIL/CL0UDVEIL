@@ -1,3 +1,9 @@
+<p align="center">
+
+  <img src="https://komarev.com/ghpvc/?username=CL0UDVEIL&color=dc3545&label=Profile%20views&style=flat-square" alt="Profile views" />
+
+</p>
+
 <img width="1080" height="100" alt="image" src="https://github.com/user-attachments/assets/8434b9fc-d0d3-4337-8f8a-5214360208a1" />
 
 
