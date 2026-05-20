@@ -19,14 +19,14 @@
 ### 🔺 : **𝐏𝐨𝐧𝐲𝐭𝐨𝐰𝐧 𝐈𝐧𝐟𝐨** <img src="https://github.com/user-attachments/assets/0e9d1b6c-b6a3-4b71-a615-d921a6cc3aeb" height="32px" align="center">
 
 
-• Usually on Island building, Docks, Rps, i am also in the Roblox Area (under bakery) or market. Sometimes i visit safe server 2 w my friends / collecting
+• Usually on Docks & Hangouts, i am also in the murder drones Area, bakery or market. Sometimes i visit safe server 2 w my friends / collecting
 
 • Most of the time i prefer to sit alone, but sometimes i might be sitting w friends / my partner
 
-• C+H Tag: cuddle freely! (unless i'm tagged w **DNI/DNIUF/DNIUIS**) i don't talk often when sitting
+• C+H Tag: cuddle freely! (unless i'm tagged w **DNI/DNIUF/DNIUID**) i don't talk often when sitting
 w someone , but i prefer sending a whisper to start a convo.
 
-• I do not support NSFW humor , block freely who mildly annoys me.
+• I do not support NSFW humor , i block freely who mildly annoys me.
 
 
 <img width="1080" height="70" alt="image" src="https://github.com/user-attachments/assets/ea794d26-b7ce-446f-9e98-3e6f9cd3b5a3" />
