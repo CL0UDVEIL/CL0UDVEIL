@@ -38,7 +38,7 @@ w someone , but i prefer sending a whisper to start a convo.
 
 • sometimes i insult my friends as a joke, But please let me know if i made you hurt/uncomfortable
 
-• 𝐒emi-verbal: Won't initiate interaction at first , but i'll try my best to match your energy.
+• 𝐒emi-verbal: Won't initiate interaction at first , English is not my native language , but i'll try my best to match your energy.
 
 • i forget people more than i should. if ur one of my friends whom i've lost contact with, don't hesitate to remind me who u are, unless we ended on bad terms, i'll keep my distance.
 
