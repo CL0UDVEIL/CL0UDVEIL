@@ -1,14 +1,3 @@
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=CL0UDVEIL&color=dc3545&label=Profile%20views&style=flat-square" alt="Profile views" />
-
-
-<p align="center">
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/5048cd9f-0a7d-43b0-9650-139306dc7051" />
-
-<p align="center">
-  oomf got to meet Doll's voice actor!!!
-  <p align="center">
-
   <p align="center">
   
 </p>
